@@ -53,7 +53,7 @@ Song about the power of addiction.
 ["Third Eye"](https://open.spotify.com/track/2Dqg2mRbfIVKhBZleNrgmH?si=rr8xDEIrRFyROusjkAaEnw
 )  **13:51** 
 
-The beginning is really rough, if you don't like aggressive music I'd save this one for last.  Its a good representation of TOOL's capability to tell a story with these long songs. MJK's voice carries the song, pushing and pulling the emotions of the song.
+The beginning is really rough, if you don't like aggressive music I'd save this one for last.  Its a good representation of TOOL's capability to tell a story with these long songs. MJK's voice carries this work, pushing and pulling emotions as it progresses.
 
 ##### <u>Lateralus</u> (2001):
 
