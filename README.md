@@ -26,6 +26,7 @@
 
 **Introspective Music**
 Many songs are about the human condition or gaining new perspective on life.
+
 **Analog Audio**
 The band takes forever to create new music because of their dedication to the natural sound of analog distortions and recording.  There's a lot more to it than that, but I don't really know how recording works. The songs are made by the musicians and MJK writes his voice lines after, which blows my mind.
 
@@ -62,8 +63,6 @@ The beginning is really rough, if you don't like aggressive music I'd save this 
 
 
 This is the song that memes have been made of because of how many times TOOL fans recommend it to others. 
-
-![1583802592045](C:\Users\DeandraSnuts\AppData\Roaming\Typora\typora-user-images\1583802592045.png)
 
 Its the most TOOL song that has ever existed.
 Song about growing up and gaining more perspective on life.
