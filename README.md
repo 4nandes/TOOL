@@ -91,7 +91,7 @@ There are some songs that won't make as much sense or be as impactful without li
 - *Fourty Six & Two*
   - Song about the idea of human evolution presented by [Carl Jung](https://en.wikipedia.org/wiki/Carl_Jung) where humans would hit the evolutionary point of using 46 autosomes and 2 sex chromosomes rather than the 44 and 2 we currently posses.
 - *Hooker With a Penis*
-  - Song about a TOOL fan confronting MJK about selling out to "the man" when they made music videos and sold albums of **Undertow** in the mainstream market. In the beginning he describes the fan having an OGT tattoo, and telling MJK that he was there since the first EP. The whole song is a fuck you to the fans and fans with that mindset, explaining that every fan is "the man" just as much as MJK is. The more people the music reaches, the more "the man" wins.
+  - Song about a TOOL fan confronting MJK about selling out to "the man" when they made music videos and sold albums of **Undertow** in the mainstream market. In the beginning he describes the fan having an OGT tattoo, and telling MJK that he was there since the first EP. The whole song is a fuck you to the fans with that mindset, explaining that every fan is "the man" just as much as MJK is. The more people the music reaches, the more "the man" wins.
 - *Lateralus*
   - The meme was not joking, it literally does use the Fibonacci sequence. I cant really explain the details, but if you're interested [this video](https://www.youtube.com/watch?v=uOHkeH2VaE0) explains it all.
 
