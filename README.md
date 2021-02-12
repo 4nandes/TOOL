@@ -72,6 +72,7 @@ Song about growing up and gaining more perspective on life.
 ![Cover art for 10,000 Days, done by artist Alex Grey, featuring what he describes as "a blazing vision of an infinite grid of Godheads during an ayahuasca journey"](https://upload.wikimedia.org/wikipedia/en/thumb/f/f8/10000Days.jpg/220px-10000Days.jpg)
 
 ["Right In Two"](https://open.spotify.com/track/0NLDZzVke3Qu7vDhWyGzRk?si=2tyYyZ7JQnOD0vJwaV10vA) **8:55** 
+
 Very spiritual song about the hate in the world. I think the drums in this song are what makes it so great.
 
 
